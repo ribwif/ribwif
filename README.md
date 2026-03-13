@@ -19,7 +19,7 @@ basic dni criteria, people i've blocked before, people who only vent, homo/trans
 <div align="center">
 <details>
   <summary> me!</summary>
-aroace and demiromantic, i border between intj and infp, 6w7 sp/sx 
+aroace and demiromantic, i border between intj and infp, 6w7 sp/sx, multifandom menace but im hyperfixated on bsd and uu/lifesteal rn precisely
 <br>
 </details>
 <br>
