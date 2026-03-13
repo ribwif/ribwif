@@ -13,7 +13,13 @@
 <details>
 <summary> do not interact if</summary>
 basic dni criteria, people i've blocked before, people who only vent, homo/transphobes, racists, immature and weird people in general! not really listing all dni's i block freely
-  
+<div align="center">
+<br>
+</details>
+<div align="center">
+<details>
+  <summary> me!</summary>
+aroace and demiromantic, i border between intj and infp, 6w7 sp/sx 
 <br>
 </details>
 <br>
